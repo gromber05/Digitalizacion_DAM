@@ -1,6 +1,6 @@
 # Historia de la Fórmula 1
 
-La **Fórmula 1** es una de las categorías de automovilismo más emocionantes y prestigiosas del mundo. Comenzó en **1950** y desde entonces ha generado una aficción enorme en incontables personas
+La **Fórmula 1** es una de las categorías de automovilismo más prestigiosas del mundo. Comenzó en **1950** y desde entonces ha generado una aficción enorme.
 
 ## Primeros Años
 
@@ -20,7 +20,7 @@ Algunos de los pilotos más icónicos incluyen:
 ![Fangio en acción](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSlmS5Lu53rNR6eb2qV5gzZZp2-z7b6MHgLRA&s)
 ## Evolución del Deporte
 
-Desde sus inicios, la F1 ha visto grandes cambios en tecnología y seguridad. La introducción de los **cascos** y **cinturones de seguridad** ha sido crucial para la protección de los pilotos. Como también lo ha sido la introducción del **halo** en 2018 con la ayuda de la escudería *Mercedes*.
+Desde sus inicios, la F1 ha pasado por grandes cambios en tecnología y seguridad. La introducción de los **cascos** y **cinturones de seguridad** ha sido crucial para la protección de los pilotos, como también lo ha sido la introducción del **halo** en 2018 con la ayuda de la escudería *Mercedes*.
 
 ### Eventos trágicos
 
