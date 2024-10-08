@@ -26,11 +26,11 @@ Fernando es conocido por su habilidad para manejar en malas condiciones temporal
 
 ## Vida Personal
 
-Fuera de las pistas, Alonso es un apasionado del deporte y ha estado involucrado en varias iniciativas benéficas. También ha explorado otras disciplinas automovilísticas, como las carreras de resistencia y el rally.
+Fuera de las pistas, Alonso es un apasionado del deporte y ha estado involucrado en varias iniciativas benéficas. También ha explorado otras categorías, como las carreras de resistencia y el rally.
 
 ## Conclusión
 
-Fernando Alonso es un ícono del automovilismo y una figura inspiradora para muchos. Su pasión y dedicación lo han llevado a alcanzar grandes éxitos y seguir compitiendo al más alto nivel en la actualidad.
+Fernando Alonso es un ídolo del automovilismo. Su pasión y dedicación lo han llevado a alcanzar grandes éxitos y seguir compitiendo con gran destreza en la actualidad.
 
 # Enlaces de Interés
 
